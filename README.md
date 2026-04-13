@@ -17,4 +17,4 @@ fk asd
 kf
 
 
-
+hello, i like trains and terminals! Cande is afraid of terminals.
